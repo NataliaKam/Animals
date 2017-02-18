@@ -1,6 +1,6 @@
 # Zadanie 1
 
-## Pies
+## Pies 
 to udomowiona forma ssaka drapieżnego z rodziny psowatych. 
 Od czasu udomowienia psów powstało wiele ras, znacznie różniących się morfologią i cechami użytkowymi. 
 Rasy pierwotne powstawały głównie w wyniku presji środowiskowej. Rasy współczesne uzyskano w wyniku doboru sztucznego. W tym Yorkshirre terrier.
@@ -10,7 +10,7 @@ Rasy pierwotne powstawały głównie w wyniku presji środowiskowej. Rasy wspó�
 (źródło: przeglądarka google)
 
 
-lub jeden z najlepszych :thumbsup: polskich aktorów :smile:
+Jeden z najlepszych :thumbsup: polskich, psich aktorów :smile:
 Pies z filmu Rodzina zastępcza to osobnik o sugestywnym imieniu Śliniak, rasy dogue de Bordeaux. 
 Choć pies nie grał w serialu pierwszych skrzypiec, to bez tego czworonożnego bohatera serial „Rodzina zastępcza” straciłby wiele. Można powiedzieć, że serial ze Śliniaka uczynił niemal głównego bohatera. Okazało się też, że psy które grały Śliniaka, to naprawdę wyśmienici zwierzęcy aktorzy!
 
