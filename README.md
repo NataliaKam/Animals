@@ -7,7 +7,7 @@ Rasy pierwotne powstawały głównie w wyniku presji środowiskowej. Rasy wspó�
 
 ![Yorshireterrier] (http://d21vu35cjx7sd4.cloudfront.net/dims3/MMAH/crop/0x0%2B0%2B0/resize/645x380/quality/90/?url=http%3A%2F%2Fs3.amazonaws.com%2Fassets.prod.vetstreet.com%2Fb1%2F22d490a81e11e0a0d50050568d634f%2Ffile%2FYorkshire-Terrier-5-645mk070411.jpg)
 
-                                                                                        (źródło: przeglądarka google)
+                                                                                   (źródło: przeglądarka google)
         
 Yorkshire terrier przypomina nieco dumnego, miniaturowego lwa z imponujacą, długą grzywą. Choć może to wyglądać rozkosznie, nie wolno zapominać, że pies ten jest terrierem i jako taki był użytkowany w przeszłości, zanim wkroczył na salony.
 Wbrew powszechnej opinii, yorkshire terrier to nie kruchy piesek-ozdoba. To inteligentny i żywiołowy pies, który potrzebuje wiele uwagi ze strony opiekuna i sporej dozy zróżnicowanej aktywności fizycznej. Mimo niezwykłej wprost energii psy tej rasy są z natury bardzo zrównoważone.
@@ -22,7 +22,7 @@ Choć pies nie grał w serialu pierwszych skrzypiec, to bez tego czworonożnego 
 
 ![Pies] (http://cdn.psy-pies.com/artykuly/rozrywka/duze/pies-z-filmu-rodzina-zastepcza1377.jpg)
 
-                                                                                        (źródło: przeglądarka google)
+                                                                                   (źródło: przeglądarka google)
         
 Dogue de Bordeaux to stara francuska rasa psów, należąca do grupy molosów w typie dogowatym. Rasę wyhodowano we Francji, jako psy stróżujące, bojowe, do polowań (np. na niedźwiedzie) oraz do walk. Współcześnie psy te pełnią jednak wyłącznie rolę psa-towarzysza i psów stróżujących.
         Szkolenie psów w filmie „Rodzina zastępcza” grających Śliniaka, wymagało od realizatorów i szkoleniowców ciężkiej pracy. Jednak efekt został osiągnięty, a widzowie się w nim zakochali. Po „Rodzinie zastępczej” i reklamach banku, w których Piotrowi Fronczewskiemu towarzyszył zwalisty dogue de Bordeaux, prawie każdy widz obecnie wie, jak wygląda pies tej rasy. Gdy na ekranie widać Śliniaka przenoszącego się leniwie z kanapy na legowisko w kuchni i z powrotem, trudno sobie wyobrazić, że przedstawiciel tej rasy może być tak łagodny, spokojny i prostolinijny. Zwłaszcza że psy tej rasy to zwierzaki dość bojaźliwe i o słabej psychice. Ponadto szybko się męczą, więc praca z nimi, także na planie filmowym, nie jest łatwym zadaniem. Dlatego podczas castingu do roli Śliniaka szukano psów wykazujących gotowość do współpracy, umiejących dawać głos (co u molosów nieczęste) oraz aportować.
@@ -31,12 +31,12 @@ Dogue de Bordeaux to stara francuska rasa psów, należąca do grupy molosów w 
 
 >*Karol Linneusz opisał naukowo psa w 1758 r. pod nazwą Canis familiaris Linnaeus, 1758. W tej samej pracy Linneusz opisał wilka pod nazwą Canis lupus. Kiedy uzgodniono, że pies prawdopodobnie pochodzi od wilka*
                 
-                                                                                       (źródło: ramotowscy.pl)
+                                                                                  (źródło: ramotowscy.pl)
 
 
 ![Wilk] (http://monikatatuaze.netgaleria.pl/files1/wzor-tatuazu-...........wilk.png)
 
-                                                                                       (źródło: przeglądarka google)
+                                                                                  (źródło: przeglądarka google)
 
 
 ## **Jeśli lubisz psy z perspektywy badań psychologicznych świadczy to o Tobie, że:** 
@@ -70,8 +70,8 @@ Dogue de Bordeaux to stara francuska rasa psów, należąca do grupy molosów w 
 | 13 lat        | 76 lat 	      | 64 lata  |
 | 14 lat        | 85 lat 	      | 70 lat   |
 
-                                                                                      (źródło: samantalec.blog.onet.pl)
+                                                                                 (źródło: samantalec.blog.onet.pl)
 
 ![Łapki] (http://posokowce.org.pl/wp-content/uploads/2015/06/LAPKI.jpg)
 
-                                                                                      (źródło: przeglądarka google)
+                                                                                 (źródło: przeglądarka google)
