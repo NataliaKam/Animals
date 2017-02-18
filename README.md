@@ -21,6 +21,7 @@ Choć pies nie grał w serialu pierwszych skrzypiec, to bez tego czworonożnego 
         (źródło: przeglądarka google)
         
 Dogue de Bordeaux to stara francuska rasa psów, należąca do grupy molosów w typie dogowatym. Rasę wyhodowano we Francji, jako psy stróżujące, bojowe, do polowań (np. na niedźwiedzie) oraz do walk. Współcześnie psy te pełnią jednak wyłącznie rolę psa-towarzysza i psów stróżujących.
+        Szkolenie psów w filmie „Rodzina zastępcza” grających Śliniaka, wymagało od realizatorów i szkoleniowców ciężkiej pracy. Jednak efekt został osiągnięty, a widzowie się w nim zakochali. Po „Rodzinie zastępczej” i reklamach banku, w których Piotrowi Fronczewskiemu towarzyszył zwalisty dogue de Bordeaux, prawie każdy widz obecnie wie, jak wygląda pies tej rasy. Gdy na ekranie widać Śliniaka przenoszącego się leniwie z kanapy na legowisko w kuchni i z powrotem, trudno sobie wyobrazić, że przedstawiciel tej rasy może być tak łagodny, spokojny i prostolinijny. Zwłaszcza że psy tej rasy to zwierzaki dość bojaźliwe i o słabej psychice. Ponadto szybko się męczą, więc praca z nimi, także na planie filmowym, nie jest łatwym zadaniem. Dlatego podczas castingu do roli Śliniaka szukano psów wykazujących gotowość do współpracy, umiejących dawać głos (co u molosów nieczęste) oraz aportować.
 
 ## Pies jest uznawany przez niektórych za gatunek wilka
 
