@@ -1,4 +1,4 @@
-# Repozytorium.
+# Zadanie 1
 
 ##Pies
 to udomowiona forma wilka szarego, ssaka drapieżnego z rodziny psowatych.
