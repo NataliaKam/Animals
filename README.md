@@ -36,7 +36,7 @@ Dogue de Bordeaux to stara francuska rasa psów, należąca do grupy molosów w 
         (źródło: przeglądarka google)
 
 
->**Jeśli lubisz psy z perspektywy badań psychologicznych świadczy to o Tobie, że:** 
+## >**Jeśli lubisz psy z perspektywy badań psychologicznych świadczy to o Tobie, że:** 
 
 >* jesteś pozytywnie nastawiony do życia,
 >* świetnie odnajdujesz się w nowym towarzystwie,
