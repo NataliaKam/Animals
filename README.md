@@ -14,14 +14,10 @@ lub jeden z najlepszych :thumbsup: polskich aktorów :smile:
 
 ![wilk] (http://vignette3.wikia.nocookie.net/wilkipedia/images/5/50/Wiki-background/revision/latest?cb=20140423151459&path-prefix=pl)
 
->**ponieważ:** 
->* istnieje większe prawdopodobieństwo, że jesteś również indywidualistą;
->* jesteś bardziej otwarty na nowe doświadczenia;
->* jeśli jesteś mężczyzną, masz większe szanse na znalezienie miłości swego życia;
->* o 17% wzrasta szansa na to, że masz wyższe wykształcenie;
->* kociarze mają większą tendencję do bycia skromnymi ludźmi;
->* jesteś w mniejszym stopniu dwulicowi;
->* wykazujesz się większą ufnością...
+>**Jeśli lubisz psy z perspektywy badań psychologicznych świadczy to o Tobie, że:** 
+>* jesteś pozytywnie nastawiony do życia,pełen entuzjazmu i energii,
+>* jesteś towarzyski,
+>* potrafisz świetnie zarządzać swoim czasem.
 
 ##Wiek psa w porównaniu z człowiekiem.
 ![wiek psa](http://www.pupile.eu/inne/tabela.htm)
