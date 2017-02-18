@@ -20,10 +20,14 @@ lub jeden z najlepszych :thumbsup: polskich aktorów :smile:
 
 (źródło: przeglądarka google)
 
+
+
 >**Jeśli lubisz psy z perspektywy badań psychologicznych świadczy to o Tobie, że:** 
 >* jesteś pozytywnie nastawiony do życia,pełen entuzjazmu i energii,
 >* jesteś towarzyski,
 >* potrafisz świetnie zarządzać swoim czasem.
+
+
 
 ## Wiek psa w porównaniu z człowiekiem.
 
