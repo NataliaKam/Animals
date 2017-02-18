@@ -5,7 +5,7 @@ to udomowiona forma wilka szarego, ssaka drapieżnego z rodziny psowatych.
 
 ![Yorshireterrier] (https://s-media-cache-ak0.pinimg.com/originals/20/a9/23/20a923ee357a344ac578039b657337ff.jpg)
 
-#[źródło: przeglądarka google]
+(źródło: przeglądarka google)
 
 
 lub jeden z najlepszych :thumbsup: polskich aktorów :smile:
