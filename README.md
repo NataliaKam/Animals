@@ -7,7 +7,7 @@ Rasy pierwotne powstawały głównie w wyniku presji środowiskowej. Rasy wspó�
 
 ![Yorshireterrier] (http://d21vu35cjx7sd4.cloudfront.net/dims3/MMAH/crop/0x0%2B0%2B0/resize/645x380/quality/90/?url=http%3A%2F%2Fs3.amazonaws.com%2Fassets.prod.vetstreet.com%2Fb1%2F22d490a81e11e0a0d50050568d634f%2Ffile%2FYorkshire-Terrier-5-645mk070411.jpg)
 
-(źródło: przeglądarka google)
+    (źródło: przeglądarka google)
 
 
 Jeden z najlepszych :thumbsup: polskich, psich aktorów :smile:
