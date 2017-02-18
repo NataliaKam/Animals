@@ -8,6 +8,10 @@ Rasy pierwotne powstawały głównie w wyniku presji środowiskowej. Rasy wspó�
 ![Yorshireterrier] (http://d21vu35cjx7sd4.cloudfront.net/dims3/MMAH/crop/0x0%2B0%2B0/resize/645x380/quality/90/?url=http%3A%2F%2Fs3.amazonaws.com%2Fassets.prod.vetstreet.com%2Fb1%2F22d490a81e11e0a0d50050568d634f%2Ffile%2FYorkshire-Terrier-5-645mk070411.jpg)
 
         (źródło: przeglądarka google)
+        
+Yorkshire terrier przypomina nieco dumnego, miniaturowego lwa z imponujacą, długą grzywą. Choć może to wyglądać rozkosznie, nie wolno zapominać, że pies ten jest terrierem i jako taki był użytkowany w przeszłości, zanim wkroczył na salony.
+Wbrew powszechnej opinii, yorkshire terrier to nie kruchy piesek-ozdoba. To inteligentny i żywiołowy pies, który potrzebuje wiele uwagi ze strony opiekuna i sporej dozy zróżnicowanej aktywności fizycznej. Mimo niezwykłej wprost energii psy tej rasy są z natury bardzo zrównoważone.
+
 
 
 Jeden z najlepszych polskich, psich aktorów :thumbsup: :
