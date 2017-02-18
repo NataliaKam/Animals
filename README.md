@@ -1,7 +1,7 @@
 # Zadanie 1
 
 ##Pies
-to udomowiona forma wilka szarego, ssaka drapieżnego z rodziny psowatych. 
+to udomowiona forma ssaka drapieżnego z rodziny psowatych. 
 Od czasu udomowienia psów powstało wiele ras, znacznie różniących się morfologią i cechami użytkowymi. 
 Rasy pierwotne powstawały głównie w wyniku presji środowiskowej. Rasy współczesne uzyskano w wyniku doboru sztucznego. W tym Yorkshirre terrier.
 
