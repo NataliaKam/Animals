@@ -10,7 +10,7 @@ lub jeden z najlepszych :thumbsup: polskich aktorów :smile:
 
 ![pies] (http://cdn.psy-pies.com/artykuly/rozrywka/duze/sliniak-z-filmu-rodzina-zastepcza1378.jpg)
 
-**Pies jest uznawany przez niektórych za gatunek wilka **
+*Pies jest uznawany przez niektórych za gatunek wilka *
 
 ![wilk] (http://vignette3.wikia.nocookie.net/wilkipedia/images/5/50/Wiki-background/revision/latest?cb=20140423151459&path-prefix=pl)
 
