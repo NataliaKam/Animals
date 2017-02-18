@@ -19,8 +19,8 @@ lub jeden z najlepszych :thumbsup: polskich aktorów :smile:
 >* jesteś towarzyski,
 >* potrafisz świetnie zarządzać swoim czasem.
 
-##Wiek psa w porównaniu z człowiekiem.
-![wiek psa]
+## Wiek psa w porównaniu z człowiekiem.
+
 | Wiek psa      | Mała rasa     | Duża rasa|
 | ------------- |:-------------:| --------:|
 | 6 miesięcy  	| 10 lat 	      | 15 lat   | 
