@@ -53,6 +53,7 @@ lub jeden z najlepszych :thumbsup: polskich aktorów :smile:
 | 13 lat        | 76 lat 	      | 64 lata  |
 | 14 lat        | 85 lat 	      | 70 lat   |
 
+(źródło: samantalec.blog.onet.pl)
 
 ![Łapki] (http://posokowce.org.pl/wp-content/uploads/2015/06/LAPKI.jpg)
 
