@@ -14,7 +14,7 @@ Wbrew powszechnej opinii, yorkshire terrier to nie kruchy piesek-ozdoba. To inte
 
 
 
-Jeden z najlepszych polskich, psich aktorów :thumbsup: :
+## A oto jeden z najlepszych polskich, psich aktorów :thumbsup: :
 
 Pies z filmu "Rodzina zastępcza" to osobnik o sugestywnym imieniu Śliniak, rasy dogue de Bordeaux. 
 Choć pies nie grał w serialu pierwszych skrzypiec, to bez tego czworonożnego bohatera serial „Rodzina zastępcza” straciłby wiele. Można powiedzieć, że serial ze Śliniaka uczynił niemal głównego bohatera. Okazało się też, że psy które grały Śliniaka, to naprawdę wyśmienici zwierzęcy aktorzy!
