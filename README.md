@@ -18,11 +18,11 @@ lub jeden z najlepszych :thumbsup: polskich aktorów :smile:
 
 **Pies jest uznawany przez niektórych za gatunek wilka **
 
+>*Karol Linneusz opisał naukowo psa w 1758 r. pod nazwą Canis familiaris Linnaeus, 1758. W tej samej pracy Linneusz opisał wilka pod nazwą Canis lupus. Kiedy uzgodniono, że pies prawdopodobnie pochodzi od wilka*
+
 ![Wilk] (http://monikatatuaze.netgaleria.pl/files1/wzor-tatuazu-...........wilk.png)
 
 (źródło: przeglądarka google)
-
-
 
 
 >**Jeśli lubisz psy z perspektywy badań psychologicznych świadczy to o Tobie, że:** 
