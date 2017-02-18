@@ -10,15 +10,16 @@ to udomowiona forma wilka szarego, ssaka drapieżnego z rodziny psowatych.
 
 lub jeden z najlepszych :thumbsup: polskich aktorów :smile:
 
-![pies] (http://cdn.psy-pies.com/artykuly/rozrywka/duze/sliniak-z-filmu-rodzina-zastepcza1378.jpg)
+![Pies] (http://cdn.psy-pies.com/artykuly/rozrywka/duze/sliniak-z-filmu-rodzina-zastepcza1378.jpg)
 
 (źródło: przeglądarka google)
 
 **Pies jest uznawany przez niektórych za gatunek wilka **
 
-![wilk] (http://vignette3.wikia.nocookie.net/wilkipedia/images/5/50/Wiki-background/revision/latest?cb=20140423151459&path-prefix=pl)
+![Wilk] (http://vignette3.wikia.nocookie.net/wilkipedia/images/5/50/Wiki-background/revision/latest?cb=20140423151459&path-prefix=pl)
 
 (źródło: przeglądarka google)
+
 
 
 
@@ -49,6 +50,7 @@ lub jeden z najlepszych :thumbsup: polskich aktorów :smile:
 | 12 lat       	| 70 lat 	      | 60 lat   |
 | 13 lat        | 76 lat 	      | 64 lata  |
 | 14 lat        | 85 lat 	      | 70 lat   |
+
 
 ![Łapki] (http://posokowce.org.pl/wp-content/uploads/2015/06/LAPKI.jpg)
 
