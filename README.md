@@ -18,6 +18,8 @@ Choć pies nie grał w serialu pierwszych skrzypiec, to bez tego czworonożnego 
 ![Pies] (http://cdn.psy-pies.com/artykuly/rozrywka/duze/pies-z-filmu-rodzina-zastepcza1377.jpg)
 
         (źródło: przeglądarka google)
+        
+Dogue de Bordeaux to stara francuska rasa psów, należąca do grupy molosów w typie dogowatym. Rasę wyhodowano we Francji, jako psy stróżujące, bojowe, do polowań (np. na niedźwiedzie) oraz do walk. Współcześnie psy te pełnią jednak wyłącznie rolę psa-towarzysza i psów stróżujących.
 
 **Pies jest uznawany przez niektórych za gatunek wilka **
 
