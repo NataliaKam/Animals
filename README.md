@@ -3,20 +3,20 @@
 ##Pies
 to udomowiona forma wilka szarego, ssaka drapieżnego z rodziny psowatych.
 
-![Yorshireterrier] (https://s-media-cache-ak0.pinimg.com/originals/20/a9/23/20a923ee357a344ac578039b657337ff.jpg)
+![Yorshireterrier] (http://d21vu35cjx7sd4.cloudfront.net/dims3/MMAH/crop/0x0%2B0%2B0/resize/645x380/quality/90/?url=http%3A%2F%2Fs3.amazonaws.com%2Fassets.prod.vetstreet.com%2Fb1%2F22d490a81e11e0a0d50050568d634f%2Ffile%2FYorkshire-Terrier-5-645mk070411.jpg)
 
 (źródło: przeglądarka google)
 
 
 lub jeden z najlepszych :thumbsup: polskich aktorów :smile:
 
-![Pies] (http://cdn.psy-pies.com/artykuly/rozrywka/duze/sliniak-z-filmu-rodzina-zastepcza1378.jpg)
+![Pies] (http://cdn.psy-pies.com/artykuly/rozrywka/duze/pies-z-filmu-rodzina-zastepcza1377.jpg)
 
 (źródło: przeglądarka google)
 
 **Pies jest uznawany przez niektórych za gatunek wilka **
 
-![Wilk] (http://vignette3.wikia.nocookie.net/wilkipedia/images/5/50/Wiki-background/revision/latest?cb=20140423151459&path-prefix=pl)
+![Wilk] (http://monikatatuaze.netgaleria.pl/files1/wzor-tatuazu-...........wilk.png)
 
 (źródło: przeglądarka google)
 
