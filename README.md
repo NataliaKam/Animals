@@ -33,11 +33,11 @@ lub jeden z najlepszych :thumbsup: polskich aktorów :smile:
 | 12 miesięcy 	| 15 lat      	| 24 lata  | 
 | 18 miesięcy 	| 20 lat 	      | 25 lat   |
 | 24 miesiące 	| 24 lata       | 25 lat   |
-| 3 lata 	      | 28 lat        |          |
-| 4 lata       	| 32 lata       |          |
-| 5 lat 	      | 36 lat        |          |
-| 6 lat 	      | 40 lat        |          |
-| 7 lat 	      | 44 lata       |          |
+| 3 lata 	      | 28 lat        | 28 lat   |
+| 4 lata       	| 32 lata       | 32 lata  |
+| 5 lat 	      | 36 lat        | 36 lat   |
+| 6 lat 	      | 40 lat        | 40 lat   |
+| 7 lat 	      | 44 lata       | 44 lata  |
 | 8 lat       	| 50 lat 	      | 48 lat   |
 | 9 lat 	      | 56 lat 	      | 50 lat   |
 | 10 lat 	      | 60 lat 	      | 52 lata  |
