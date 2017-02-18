@@ -7,7 +7,7 @@ Rasy pierwotne powstawały głównie w wyniku presji środowiskowej. Rasy wspó�
 
 ![Yorshireterrier] (http://d21vu35cjx7sd4.cloudfront.net/dims3/MMAH/crop/0x0%2B0%2B0/resize/645x380/quality/90/?url=http%3A%2F%2Fs3.amazonaws.com%2Fassets.prod.vetstreet.com%2Fb1%2F22d490a81e11e0a0d50050568d634f%2Ffile%2FYorkshire-Terrier-5-645mk070411.jpg)
 
-    (źródło: przeglądarka google)
+        (źródło: przeglądarka google)
 
 
 Jeden z najlepszych :thumbsup: polskich, psich aktorów :smile:
@@ -17,7 +17,7 @@ Choć pies nie grał w serialu pierwszych skrzypiec, to bez tego czworonożnego 
 
 ![Pies] (http://cdn.psy-pies.com/artykuly/rozrywka/duze/pies-z-filmu-rodzina-zastepcza1377.jpg)
 
-(źródło: przeglądarka google)
+        (źródło: przeglądarka google)
 
 **Pies jest uznawany przez niektórych za gatunek wilka **
 
@@ -25,7 +25,7 @@ Choć pies nie grał w serialu pierwszych skrzypiec, to bez tego czworonożnego 
 
 ![Wilk] (http://monikatatuaze.netgaleria.pl/files1/wzor-tatuazu-...........wilk.png)
 
-(źródło: przeglądarka google)
+        (źródło: przeglądarka google)
 
 
 >**Jeśli lubisz psy z perspektywy badań psychologicznych świadczy to o Tobie, że:** 
@@ -56,8 +56,8 @@ Choć pies nie grał w serialu pierwszych skrzypiec, to bez tego czworonożnego 
 | 13 lat        | 76 lat 	      | 64 lata  |
 | 14 lat        | 85 lat 	      | 70 lat   |
 
-(źródło: samantalec.blog.onet.pl)
+        (źródło: samantalec.blog.onet.pl)
 
 ![Łapki] (http://posokowce.org.pl/wp-content/uploads/2015/06/LAPKI.jpg)
 
-(źródło: przeglądarka google)
+        (źródło: przeglądarka google)
