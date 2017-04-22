@@ -5,7 +5,7 @@ to udomowiona forma ssaka drapieżnego z rodziny psowatych.
 Od czasu udomowienia psów powstało wiele ras, znacznie różniących się morfologią i cechami użytkowymi. 
 Rasy pierwotne powstawały głównie w wyniku presji środowiskowej. Rasy współczesne uzyskano w wyniku doboru sztucznego. W tym Yorkshirre terrier.
 
-![Yorshireterrier] (http://d21vu35cjx7sd4.cloudfront.net/dims3/MMAH/crop/0x0%2B0%2B0/resize/645x380/quality/90/?url=http%3A%2F%2Fs3.amazonaws.com%2Fassets.prod.vetstreet.com%2Fb1%2F22d490a81e11e0a0d50050568d634f%2Ffile%2FYorkshire-Terrier-5-645mk070411.jpg)
+![Yorshireterrier](http://d21vu35cjx7sd4.cloudfront.net/dims3/MMAH/crop/0x0%2B0%2B0/resize/645x380/quality/90/?url=http%3A%2F%2Fs3.amazonaws.com%2Fassets.prod.vetstreet.com%2Fb1%2F22d490a81e11e0a0d50050568d634f%2Ffile%2FYorkshire-Terrier-5-645mk070411.jpg)
 
                                                                                 (źródło: vetstreet.com)
         
