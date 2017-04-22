@@ -1,5 +1,8 @@
 # Ciekawostki o psach i ich właścicielach  :smile:
 
+>*Pies jest jedyną istotą na świecie , która bardziej kocha Ciebie niż samego siebie.
+>~J.Billings*
+
 ## Pies 
 to udomowiona forma ssaka drapieżnego z rodziny psowatych. 
 Od czasu udomowienia psów powstało wiele ras, znacznie różniących się morfologią i cechami użytkowymi. 
