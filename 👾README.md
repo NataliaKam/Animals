@@ -48,7 +48,7 @@ Dogue de Bordeaux to stara francuska rasa psów, należąca do grupy molosów w 
 >* świetnie odnajdujesz się w nowym towarzystwie,
 >* posiadasz większą zdolność radzenia sobie z konfliktami niż "kociarze",
 >* tryskasz energią,
-* potrafisz świetnie zarządzać swoim czasem.
+>* potrafisz świetnie zarządzać swoim czasem.
 
 
 
