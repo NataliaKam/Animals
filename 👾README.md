@@ -1,6 +1,7 @@
 # Ciekawostki o psach i ich właścicielach  :smile:
 
->*Pies jest jedyną istotą na świecie , która bardziej kocha Ciebie niż samego siebie. J.Billings*<
+
+>*Pies jest jedyną istotą na świecie , która bardziej kocha Ciebie niż samego siebie. J.Billings*
 
 ## Pies 
 to udomowiona forma ssaka drapieżnego z rodziny psowatych. 
