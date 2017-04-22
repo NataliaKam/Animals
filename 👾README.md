@@ -29,7 +29,7 @@ Dogue de Bordeaux to stara francuska rasa psów, należąca do grupy molosów w 
 
 ## Pies jest uznawany przez niektórych za gatunek wilka
 
->*Karol Linneusz opisał naukowo psa w 1758 r. pod nazwą Canis familiaris Linnaeus, 1758. W tej samej pracy Linneusz opisał wilka pod nazwą Canis lupus. Kiedy uzgodniono, że pies prawdopodobnie pochodzi od wilka*
+>*Karol Linneusz opisał naukowo psa w 1758 r. pod nazwą Canis familiaris Linnaeus, 1758. W tej samej pracy Linneusz opisał wilka pod nazwą Canis lupus. Kiedy uzgodniono, że pies prawdopodobnie pochodzi od wilka.*
                 
                                                                                (źródło: ramotowscy.pl)
 
