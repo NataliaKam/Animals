@@ -20,7 +20,7 @@ Pies z filmu "Rodzina zastępcza" to osobnik o sugestywnym imieniu Śliniak, ras
 Choć pies nie grał w serialu pierwszych skrzypiec, to bez tego czworonożnego bohatera serial „Rodzina zastępcza” straciłby wiele. Można powiedzieć, że serial ze Śliniaka uczynił niemal głównego bohatera. Okazało się też, że psy które grały Śliniaka, to naprawdę wyśmienici zwierzęcy aktorzy!
 
 
-![Pies] (2)
+![Pies] (2.jpg)
 
                                                                                 (źródło: psy-pies.com)
         
@@ -34,7 +34,7 @@ Dogue de Bordeaux to stara francuska rasa psów, należąca do grupy molosów w 
                                                                                (źródło: ramotowscy.pl)
 
 
-![Wilk] (3)
+![Wilk] (3.jpg)
 
                                                                                   (źródło: asocjacje.pl)
 
@@ -72,6 +72,6 @@ Dogue de Bordeaux to stara francuska rasa psów, należąca do grupy molosów w 
 
                                                                               (źródło: samantalec.blog.onet.pl)
 
-![Łapki] (4)
+![Łapki] (4.jpg)
 
                                                                               (źródło: posokowce.org)
