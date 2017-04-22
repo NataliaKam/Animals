@@ -34,7 +34,7 @@ Dogue de Bordeaux to stara francuska rasa psów, należąca do grupy molosów w 
                                                                                (źródło: ramotowscy.pl)
 
 
-![Wilk](3.jpg) 
+![Wilk](3.png) 
 
                                                                                   (źródło: asocjacje.pl)
 
